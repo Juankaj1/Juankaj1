@@ -1,4 +1,4 @@
-<p align="center"><img width="923" height="504" alt="Screenshot_328" src="https://github.com/user-attachments/assets/ee8a3584-8011-4ba2-89d2-7aabf6219743" /></p>
+<p align="center"><img width="675" height="368" alt="Screenshot_329" src="https://github.com/user-attachments/assets/69bb8231-dd8a-4eea-8507-368fa3c5d157" /></p>
 <p align="center">✧ㅤᴘғᴘ: ᴘᴜᴠɪᴀɴ ʟɪêᴍ (ғʙ)</p>
 <p align="center">always offtab (ig) , c+h is okay</p>
 <p align="center">⬇</p>
